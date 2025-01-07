@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/463df4c9-e5eb-4358-bff3-631a7017920b)## Portfolio
+
 
 ### Hello, I'm Shreeharsh S 👋
 
